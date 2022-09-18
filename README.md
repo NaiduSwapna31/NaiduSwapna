@@ -1,6 +1,6 @@
-<<
 # NaiduSwapna
-linkedin -- << 
+
+linkedin -- https://www.linkedin.com/in/swapna-naidu-9bb726238
 mail -- swapnanaidu457@gmail.com
 
 #she is  currently searching for an internship where she can improve her skills what she have learned from her educational schools and colleges.
